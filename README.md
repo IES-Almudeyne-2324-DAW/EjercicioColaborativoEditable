@@ -13,7 +13,9 @@ Afortunadamente aprobaron todos, pero el día que cogían el vuelo...
 ### Autor: Juan Martín Candela
 Un pájaro chocó con una turbina y acabaron abandonados en una isla desierta
 
-### Autor: 
+### Autor: Ana Alicia López Vázquez  
+A los días tenían mucha hambre y decidieron en grupos atacarse unos a 
+otros, y entonces, Tibu decidio...
 
 
 ### Autor: 
