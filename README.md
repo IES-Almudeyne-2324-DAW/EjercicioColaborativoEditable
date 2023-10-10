@@ -10,8 +10,8 @@ Los alumnos de DAW iran a Mykonos, Grecia una vez acaben de estudiar.
 ### Autor: José Antonio Vergara Sánchez
 Afortunadamente aprobaron todos, pero el día que cogían el vuelo...
 
-### Autor: 
-
+### Autor: Juan Martín Candela
+Un pájaro chocó con una turbina y acabaron abandonados en una isla desierta
 
 ### Autor: 
 
