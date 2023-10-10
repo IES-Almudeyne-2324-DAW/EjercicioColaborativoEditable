@@ -18,7 +18,8 @@ A los días tenían mucha hambre y decidieron en grupos atacarse unos a
 otros, y entonces, Tibu decidio...
 
 
-### Autor: 
+### Autor: Tiburcio Mayo González
+Que fueran todos unidos a por Alicia, ya que sin ella no tendrían mas tareas ni examenes en la vida.. y luego Jose Maria...
 
 
 ### Autor: 
