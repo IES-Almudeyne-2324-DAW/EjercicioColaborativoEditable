@@ -7,8 +7,8 @@ Una vez que terminaron sus estudios, los alumnos de 2º DAW del IES Almudeyne de
 Los alumnos de DAW iran a Mykonos, Grecia una vez acaben de estudiar. 
 
 
-### Autor: 
-
+### Autor: José Antonio Vergara Sánchez
+Afortunadamente aprobaron todos, pero el día que cogían el vuelo...
 
 ### Autor: 
 
