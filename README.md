@@ -31,7 +31,8 @@ Al cabo de los días consiguieron llamar la atencion de un helicóptero pero res
 ### Autor: Álvaro Sánchez Moreno
 A medida que el misterioso ovni descendía, los alumnos vieron cómo una escotilla se abría y resultó ser Pablo Motos el que manejaba!  
 
-### Autor: 
+### Autor: David Dorante Lucas
+Pablo Motos con asombro de encontrar supervivientes, dicidió quitarle el resto de comida que tenían los alumnos y se fue riéndose
 
 
 ### Autor: 
