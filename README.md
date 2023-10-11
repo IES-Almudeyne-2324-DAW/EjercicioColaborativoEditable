@@ -22,8 +22,8 @@ Que fueran todos unidos a por Alicia, ya que sin ella no tendrían mas tareas ni
 ### Autor: José María Mañero Brenes
 Propuso un plan más lógico para la supervivencia, hacer mucho humo con una hoguera enorme y esperar suerte a que pase cerca un barco o un helicóptero.
 
-### Autor:
-
+### Autor: Carmen Sánchez Martín
+Los días pasaban y los alumnos tenían mucha más hambre, lo único que habían comido en 3 días era un bocadillo para 11 personas.
 
 ### Autor: 
 
