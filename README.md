@@ -25,8 +25,8 @@ Propuso un plan más lógico para la supervivencia, hacer mucho humo con una hog
 ### Autor: Carmen Sánchez Martín
 Los días pasaban y los alumnos tenían mucha más hambre, lo único que habían comido en 3 días era un bocadillo para 11 personas.
 
-### Autor: 
-
+### Autor: Adrián Martínez Segura
+Al cabo de los días consiguieron llamar la atencion de un helicóptero pero resultó ser un ovni
 
 ### Autor: 
 
