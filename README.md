@@ -28,8 +28,8 @@ Los días pasaban y los alumnos tenían mucha más hambre, lo único que habían
 ### Autor: Adrián Martínez Segura
 Al cabo de los días consiguieron llamar la atencion de un helicóptero pero resultó ser un ovni
 
-### Autor: 
-
+### Autor: Álvaro Sánchez Moreno
+A medida que el misterioso ovni descendía, los alumnos vieron cómo una escotilla se abría y resultó ser Pablo Motos el que manejaba!  
 
 ### Autor: 
 
