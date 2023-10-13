@@ -35,6 +35,8 @@ A medida que el misterioso ovni descendía, los alumnos vieron cómo una escotil
 Pablo Motos con asombro de encontrar supervivientes, dicidió quitarle el resto de comida que tenían los alumnos y se fue riéndose
 
 
-### Autor: 
-
+### Autor: Pablo Márquez Gómez
+Pero antes de irse, dejó bajar a alguien del ovni. Era nada más y nada menos que Rafael Barroso, el cual estaba secuestrado por Pablo Motos.
+En cuanto se bajó, se acercó a nosotros y nos dijo: "Tengo un plan para escapar de esta isla, os lo explico: PATATIN PATATAN..."
+Proximamente la temporada 2 solo en Netflix. CHACHI?
 
